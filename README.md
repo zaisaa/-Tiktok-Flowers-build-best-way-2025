@@ -4,9 +4,9 @@
 TikTok is full of creative flower videos that people love. These can be flower bouquets, room decorations, or simple flower crafts. If you want to make great TikTok flower videos, here’s the best way to do it:
 
 
-[✅️Click Here For Get Now](file:///C:/Users/user/Downloads/Tiktok.html)
+[✅️Click Here For Get Now](https://sites.google.com/view/all-gift-card-resourse/home)
 
-[✅️Click Here For Get Now](file:///C:/Users/user/Downloads/Tiktok.html)
+[✅️Click Here For Get Now](https://sites.google.com/view/all-gift-card-resourse/home)
 
 
 Choose Fresh or Colorful Flowers
